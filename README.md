@@ -1,19 +1,11 @@
-`˖ ₊⊹ ࣪ Forget me Not. ˚₊ ⋆ ˚`
+`˖ ₊⊹ ࣪ Repress yourself. ˚₊ ⋆ ˚`
 
-![0ae7f16c-3b16-48de-844c-63e68c6fb058](https://github.com/user-attachments/assets/925f5bd7-63ac-416a-9b4a-a29c6e3191be)
-
-*Hellebores growing in his head, worry consuming the host.*
-
-*Pink Lilacs appeared beneath his joints, as acceptance overflow the puppet*
-
-*But wherever they were, their love to each other remained*
+I swear I will get to this.. wip
 
 ──────────────────── ୨୧ ────────────────────
 
-c+h always encouraged . whisper to interact
+Cereal . any pronouns . unlabeled/aroace
 
-do not steal my works, may ask if inspired :)
+c+h always encouraged . usually offtab so w2i!
 
-also dont be intimidated by how my ponies look (like me,,)
-
-more on strawpage!! + please do sign atabook
+more on strawpage linked in main acc, sign ata too :3 !!
